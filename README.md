@@ -1,2 +1,0 @@
-# fredpicanco.github.io
-Portfólio
